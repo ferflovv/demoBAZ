@@ -1,0 +1,1 @@
+A ver si le entendi a la clase de hoy
